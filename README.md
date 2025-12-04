@@ -38,8 +38,8 @@
 ## 🔗 Official Channels (ช่องทางติดตาม)
 
 * **Website:** [blog.varietyholiday.com](https://blog.varietyholiday.com/)
-* **Line OA:** (ใส่ Line ID ของคุณที่นี่)
-* **Facebook:** (ใส่ Link Facebook Page)
+* **Line OA:** [(ใส่ Line ID ของคุณที่นี่)](https://www.facebook.com/varietyholidaytour)
+* **Facebook:** [(ใส่ Link Facebook Page)](https://line.me/R/ti/p/@762mduqe)
 * **Tel:** 081-895-3291
 
 ---
